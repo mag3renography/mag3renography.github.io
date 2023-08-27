@@ -1,1 +1,1 @@
-# mag3renography.github.io
+# MAG3renography
